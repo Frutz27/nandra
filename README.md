@@ -1,0 +1,2 @@
+# nandra
+tugas asj
